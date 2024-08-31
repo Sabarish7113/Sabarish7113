@@ -1,5 +1,5 @@
 # 💫 About Me:
- I blend coding and design expertise to craft captivating<br> digital solutions. With a knack for user centric design and<br> technical proficiency, I collaborate effectively to bring<br> projects to fruition.
+ I blend coding and design expertise to craft captivating digital solutions. With a knack for user centric design and technical proficiency, I collaborate effectively to bring<br> projects to fruition.
 
 
 ## 🌐 Socials:
